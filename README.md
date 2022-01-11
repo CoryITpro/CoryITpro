@@ -8,3 +8,5 @@ Hope to collaborate with you!
 * https://realcryptoathletes.com
 * https://captaincandynft.com
 * https://coollamagang.com
+* https://nft.evervaultdao.finance
+* https://evervaultdao.finance
