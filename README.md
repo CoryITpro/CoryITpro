@@ -1,5 +1,3 @@
-# My Telegram: @imecmaster
-
 # 👋 Hello, there!
 
 ### I am experienced in the following techniques.
