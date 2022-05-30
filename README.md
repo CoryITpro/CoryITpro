@@ -1,4 +1,4 @@
-# 👋 Hello, there! (hey MAXX)
+# 👋 Hello, there!
 
 ### I am experienced in the following techniques.
 
